@@ -1,4 +1,4 @@
-# 
+# Top MEV arbitrage bot ferramentas para Mac OS | Avançado MEV arbitrage bot ferramentas para PC Windows. Com varredura de arbitragem e cálculo de lucros — otimizado para máximo desempeño en cada plataforma.
 
 
 
